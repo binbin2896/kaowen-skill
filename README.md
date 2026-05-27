@@ -36,4 +36,4 @@
 
 ---
 
-*作者：宋彬斌 × Hermes Agent*
+*作者：BINBIN*
